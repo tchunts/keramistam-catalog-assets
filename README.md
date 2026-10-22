@@ -1,0 +1,1 @@
+# keramistam-catalog-assets
